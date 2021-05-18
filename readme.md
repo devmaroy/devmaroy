@@ -4,6 +4,8 @@ Now I will answer the first and very ... important question!
 
 **_Who the hell am I?_** :thinking:
 
+<img height="300" src="https://media1.giphy.com/media/LwHmo9lTEkqrauffHc/giphy.gif?cid=ecf05e47moet9w478uxmfrybafrvzypuhe845cy4mfrunhdp&rid=giphy.gif&ct=g" alt="Surprised image" />
+
 <br>
 
 ## I'm sure you really want to know!
