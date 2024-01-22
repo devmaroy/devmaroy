@@ -31,7 +31,7 @@ If you'd like to see more, check out my [GitHub](https://github.com/devmaroy?tab
 
 <br>
 
-Maybe you have a question, job for me or you just want to chat ... :email: [e-mail](mailto:hello@devmaroy.com) is your friend!
+Maybe you have a question, job for me or you just want to chat ... :email: [e-mail](mailto:marek@matejovic.com) is your friend!
 
 <br>
 
